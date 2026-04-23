@@ -1,5 +1,5 @@
 # [SMS-MAN-vs-TextNow-2026-free-vs-paid-virtual-numbers-key-differences](https://sms-man.com/?ref=romantut)
-```markdown
+
 # SMS-MAN vs TextNow 2026: free vs paid virtual numbers, key differences — sms-activate review
 
 ## 1. Intro
